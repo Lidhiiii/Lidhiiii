@@ -1,5 +1,5 @@
 # 💫 About Me:
-A passioanet AI and ML graduate!!!<br>
+A passionate AI and ML graduate!!!<br>
 
 
 ## 🌐 Socials:
